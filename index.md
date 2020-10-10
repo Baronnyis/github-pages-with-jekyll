@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Hey there!
 
-I'm glad you are here. I plan to talk about ...
+my name is Yusuf Suleiman lanre, I love to learn how stuff work.
